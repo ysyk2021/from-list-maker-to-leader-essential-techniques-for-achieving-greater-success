@@ -1,5 +1,4 @@
 
-
 "From List Maker to Leader: Essential Techniques for Achieving Greater Success" is a comprehensive guide to developing the skills and mindset necessary to succeed as a leader. Throughout this book, we have explored various techniques and strategies for leadership development, including defining leadership, overcoming limiting beliefs, identifying goals, effective communication, decision-making, delegation, coaching and mentoring, building high-performing teams, driving change, and sustaining leadership over the long-term.
 
 Recap of Leadership Techniques
