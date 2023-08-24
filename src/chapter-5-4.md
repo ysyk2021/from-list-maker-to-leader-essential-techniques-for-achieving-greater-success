@@ -1,5 +1,3 @@
-Building Emotional Intelligence
-=================================================================================
 
 Effective communication and conflict resolution skills are essential for successful leadership. In this chapter, we will explore the importance of emotional intelligence in building effective communication and conflict resolution skills.
 

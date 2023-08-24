@@ -1,5 +1,3 @@
-The History of Leadership
-=========================================================
 
 Leadership is a concept that has been studied and debated for centuries. Throughout history, there have been numerous examples of individuals who have demonstrated exceptional leadership skills and qualities. In this chapter, we will explore the history of leadership, from ancient times to the present day.
 

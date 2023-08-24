@@ -1,5 +1,3 @@
-Chapter 1: Defining Leadership
-==============================
 
 Leadership is an essential component of personal and professional success. In this chapter, we will define leadership, explore its history, discuss its role in personal and professional development, and provide strategies for embracing leadership as a skill.
 

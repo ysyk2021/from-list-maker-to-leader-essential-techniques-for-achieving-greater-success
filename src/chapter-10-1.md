@@ -1,5 +1,3 @@
-Sustaining Leadership over the Long-Term
-==========================================================================
 
 Leadership is a critical skill for achieving greater success in our personal and professional lives. However, sustaining effective leadership over the long-term can be challenging. In this chapter, we will explore essential techniques for sustaining leadership over the long-term, including continuous learning, self-care, and building a support system.
 

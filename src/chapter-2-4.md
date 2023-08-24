@@ -1,5 +1,3 @@
-How to Embrace Leadership as a Skill
-====================================================================
 
 In this chapter, we will explore the definition of leadership and how it can be embraced as a skill. We will discuss the qualities that make a great leader and why leadership is important for achieving greater success.
 

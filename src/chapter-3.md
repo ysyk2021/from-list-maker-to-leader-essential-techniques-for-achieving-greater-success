@@ -1,5 +1,3 @@
-Chapter 2: Mindset for Leadership
-=================================
 
 Effective leadership requires not only practical skills and abilities but also a strong mindset. A mindset for leadership involves adopting a growth-oriented perspective, overcoming limiting beliefs about leadership, building confidence, and engaging in self-reflection. This chapter will explore strategies for developing a mindset for leadership.
 

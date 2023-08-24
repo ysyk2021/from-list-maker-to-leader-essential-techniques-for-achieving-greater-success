@@ -1,5 +1,3 @@
-Overcoming Analysis Paralysis
-=============================================================================
 
 Effective time management and decision making are critical skills for achieving greater success as a leader. However, it is common to get stuck in analysis paralysis when faced with too many options or competing priorities. In this chapter, we will discuss strategies for overcoming analysis paralysis and making effective decisions.
 

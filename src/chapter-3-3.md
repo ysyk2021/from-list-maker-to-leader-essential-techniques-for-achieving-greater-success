@@ -1,5 +1,3 @@
-Strategies for Building Confidence
-=====================================================================
 
 Confidence is a crucial characteristic for effective leadership. When we have confidence in ourselves and our abilities, we can inspire others, make tough decisions, and achieve greater success. However, building confidence can be challenging, especially when facing new situations or unfamiliar challenges. This chapter will explore strategies for developing a mindset for leadership and building confidence.
 

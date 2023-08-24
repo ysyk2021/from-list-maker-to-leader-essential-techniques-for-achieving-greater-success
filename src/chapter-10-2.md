@@ -1,5 +1,3 @@
-Strategies for Maintaining Motivation and Inspiration
-=======================================================================================
 
 Leadership is a critical skill for achieving greater success in our personal and professional lives. However, sustaining effective leadership over the long-term can be challenging. In this chapter, we will explore essential strategies for maintaining motivation and inspiration as a leader.
 

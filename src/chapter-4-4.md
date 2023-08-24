@@ -1,5 +1,3 @@
-Building Motivation
-=============================================================================
 
 Understanding personal and professional goals is essential for building motivation and achieving success as a leader. In this chapter, we will explore the importance of setting goals, strategies for identifying and prioritizing personal and professional goals, and building motivation to achieve those goals.
 

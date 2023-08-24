@@ -1,5 +1,3 @@
-Building a Growth Mindset Around Feedback
-============================================================================
 
 Effective coaching and mentoring can be powerful tools for building a growth mindset, especially when it comes to receiving feedback. By developing a growth-oriented perspective around feedback, we can learn from our experiences, identify areas for growth, and achieve greater success as leaders. This chapter will explore strategies for building a growth mindset around feedback through coaching and mentoring.
 

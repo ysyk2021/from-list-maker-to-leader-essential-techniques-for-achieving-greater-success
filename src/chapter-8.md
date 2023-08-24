@@ -1,5 +1,3 @@
-Chapter 7: Coaching and Mentoring
-=================================
 
 Coaching and mentoring are essential skills for effective leadership. By coaching and mentoring team members, leaders can help them develop their skills, reach their potential, and achieve greater success in their personal and professional lives. In this chapter, we will explore the principles of effective coaching and mentoring, as well as strategies for building a growth mindset around feedback and overcoming imposter syndrome.
 

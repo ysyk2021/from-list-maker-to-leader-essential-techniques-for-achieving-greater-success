@@ -1,5 +1,3 @@
-Building Self-Awareness
-=======================================================================
 
 Effective time management and decision making are essential skills for successful leadership. In this chapter, we will discuss how building self-awareness can improve these skills.
 

@@ -1,5 +1,3 @@
-Overcoming Resistance to Change
-===========================================================================
 
 Team building and collaboration are essential for achieving greater success in any organization. However, resistance to change can often impede progress and hinder the effectiveness of teams. In this chapter, we will explore strategies for overcoming resistance to change in order to build strong teams and foster collaboration.
 

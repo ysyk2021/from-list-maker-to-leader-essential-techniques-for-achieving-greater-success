@@ -1,5 +1,3 @@
-What is Leadership?
-===================================================
 
 In this chapter, we will explore the definition of leadership and what it means to be a leader. We will discuss the different types of leadership and the importance of effective leadership in achieving success.
 

@@ -1,5 +1,3 @@
-Building a Support System
-====================================================
 
 Leading change can be a challenging and sometimes lonely experience. Having a strong support system can help us navigate the ups and downs of leading change and stay motivated and focused on our goals. In this chapter, we will explore strategies for building a support system when leading change.
 

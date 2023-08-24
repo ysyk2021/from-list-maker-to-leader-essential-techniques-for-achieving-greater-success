@@ -1,5 +1,3 @@
-Overcoming Obstacles and Setbacks
-===================================================================================
 
 Even with strong communication and conflict resolution skills, obstacles and setbacks may still arise. In this chapter, we will explore strategies for overcoming obstacles and setbacks in order to maintain effective communication and resolve conflicts.
 

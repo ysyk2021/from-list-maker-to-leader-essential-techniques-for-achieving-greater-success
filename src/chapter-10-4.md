@@ -1,5 +1,3 @@
-Building a Support System
-===========================================================
 
 Sustaining leadership over the long term requires more than just technical skills and knowledge. Leaders must also have a support system in place that helps them navigate challenges, stay motivated, and continually grow and develop. In this chapter, we will discuss how to build a support system as a leader.
 

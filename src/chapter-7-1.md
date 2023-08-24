@@ -1,5 +1,3 @@
-The Impact of Effective Team Building and Collaboration on Leadership
-=================================================================================================================
 
 Effective team building and collaboration are essential skills for successful leadership. In this chapter, we will explore the impact of effective team building and collaboration on leadership.
 

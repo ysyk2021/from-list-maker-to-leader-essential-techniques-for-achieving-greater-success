@@ -1,5 +1,3 @@
-Strategies for Leading Change Effectively
-====================================================================
 
 Leading change is a critical skill for leaders who seek to achieve greater success. Change can be challenging, but it is also essential for growth and innovation. In this chapter, we will explore strategies for leading change effectively.
 

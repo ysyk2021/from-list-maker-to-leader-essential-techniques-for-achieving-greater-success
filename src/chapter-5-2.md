@@ -1,5 +1,3 @@
-Strategies for Improving Communication Skills
-===============================================================================================
 
 Effective communication is essential for successful leadership. In this chapter, we will explore strategies for improving communication skills and resolving conflicts.
 

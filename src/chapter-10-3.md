@@ -1,5 +1,3 @@
-Overcoming Burnout and Exhaustion
-===================================================================
 
 Leadership can be a rewarding and fulfilling experience, but it can also be demanding and stressful. Over time, the demands of leadership can lead to burnout and exhaustion, which can hinder our ability to lead effectively. This chapter will explore strategies for overcoming burnout and exhaustion and sustaining effective leadership.
 

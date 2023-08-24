@@ -1,5 +1,3 @@
-The Power of Self-Reflection
-===============================================================
 
 Developing a mindset for leadership is essential for achieving success as a leader. In this chapter, we will discuss the power of self-reflection in building a mindset for leadership.
 

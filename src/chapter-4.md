@@ -1,5 +1,3 @@
-Chapter 3: Understanding Personal and Professional Goals
-========================================================
 
 Understanding personal and professional goals is a critical component of achieving greater success as a leader. In this chapter, we will discuss the importance of understanding personal and professional goals, strategies for identifying them, and how leadership impacts goal achievement. We will also explore ways to build motivation to achieve your goals.
 

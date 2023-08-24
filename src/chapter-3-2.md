@@ -1,5 +1,3 @@
-Overcoming Limiting Beliefs about Leadership
-===============================================================================
 
 Developing a mindset for leadership is essential for achieving success as a leader. One of the biggest barriers to developing this mindset is limiting beliefs about leadership. In this chapter, we will discuss how to overcome these limiting beliefs.
 

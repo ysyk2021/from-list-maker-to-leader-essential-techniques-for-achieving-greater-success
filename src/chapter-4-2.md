@@ -1,5 +1,3 @@
-Strategies for Identifying Personal and Professional Goals
-====================================================================================================================
 
 Identifying personal and professional goals is a crucial step in achieving success as a leader. In this chapter, we will discuss effective strategies for identifying personal and professional goals.
 

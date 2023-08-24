@@ -1,5 +1,3 @@
-Overcoming Imposter Syndrome
-===============================================================
 
 Imposter syndrome is a common experience for many leaders, particularly those who are new to leadership roles. In this chapter, we will discuss how coaching and mentoring can help overcome imposter syndrome.
 

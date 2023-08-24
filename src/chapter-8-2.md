@@ -1,5 +1,3 @@
-Strategies for Coaching and Mentoring Others
-===============================================================================
 
 Coaching and mentoring are essential skills for effective leadership. In this chapter, we will explore strategies for coaching and mentoring others in order to help them develop their skills, reach their potential, and achieve greater success in their personal and professional lives.
 

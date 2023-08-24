@@ -1,5 +1,3 @@
-Strategies for Managing Your Time Effectively
-=============================================================================================
 
 Effective time management is essential for successful leadership. In this chapter, we will explore strategies for managing your time effectively.
 

@@ -1,5 +1,3 @@
-Chapter 9: Sustaining Leadership
-================================
 
 Sustaining leadership over the long-term requires more than just technical skills and knowledge. Leaders must also have strategies in place to maintain motivation, overcome burnout and exhaustion, and build a support system that helps them navigate challenges and stay focused on their goals. In this chapter, we will discuss how to sustain leadership over the long-term.
 

@@ -1,5 +1,3 @@
-Chapter 6: Team Building and Collaboration
-==========================================
 
 Effective team building and collaboration are essential for successful leadership. In this chapter, we will explore the impact of effective team building and collaboration on leadership, strategies for building and leading teams, overcoming resistance to change, and building a culture of trust.
 

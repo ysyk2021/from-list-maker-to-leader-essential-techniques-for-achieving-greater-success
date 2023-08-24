@@ -1,5 +1,3 @@
-Developing a Growth Mindset
-==============================================================
 
 Developing a growth mindset is essential for effective leadership. A growth mindset involves believing in our ability to learn and grow, even when faced with challenges or setbacks. Adopting a growth mindset can help us develop greater resilience and adaptability, which are essential qualities for effective leadership. This chapter will explore strategies for developing a growth mindset.
 

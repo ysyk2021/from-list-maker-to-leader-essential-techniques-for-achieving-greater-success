@@ -1,5 +1,3 @@
-Chapter 5: Time Management and Decision Making
-==============================================
 
 Effective time management and decision making are essential skills for successful leadership. In this chapter, we will explore the principles of effective time management and decision making, strategies for managing your time effectively, building self-awareness, and overcoming analysis paralysis.
 

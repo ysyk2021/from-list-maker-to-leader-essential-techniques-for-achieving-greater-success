@@ -1,5 +1,3 @@
-Understanding the Principles of Effective Time Management and Decision Making
-=============================================================================================================================
 
 Effective time management and decision making are essential skills for successful leadership. In this chapter, we will explore the principles of effective time management and decision making.
 

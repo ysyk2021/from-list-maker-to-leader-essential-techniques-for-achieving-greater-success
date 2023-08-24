@@ -1,5 +1,3 @@
-Chapter 8: Leading Change
-=========================
 
 Leadership plays a crucial role in driving change within organizations and communities. In this chapter, we will discuss the role of leadership in driving change, strategies for leading change effectively, building a support system, and the impact of leadership on personal and professional success.
 
