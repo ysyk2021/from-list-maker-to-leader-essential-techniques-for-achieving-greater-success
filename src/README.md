@@ -8,3 +8,7 @@ The book is divided into several chapters, each one focusing on a specific skill
 Whether you're an individual who wants to achieve more in your personal and professional life, or a business owner who wants to maximize organizational efficiency and profitability, From List Maker to Leader: Essential Techniques for Achieving Greater Success is a valuable resource that will help you develop the necessary skills to reach your full potential. So let's dive into the world of effective leadership and productivity and learn how to achieve greater success.
 
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
+
+Please Buy Me a Coffee to support us if you think this book is valuable to you. click this link:
+
+https://www.buymeacoffee.com/minghaizheng
